@@ -7,3 +7,4 @@
 <!---
 henrique05gomes/henrique05gomes is a ✨ special ✨ praticamente, eu trabalho aqui desde 2016, mais minha conta antiga foi hackeada, eu trabalho na escola santo olimpia, eu te adoro voces me aman, mais o mosso e o osso nao e amigo pratico
 --->
+![Uploading user (2).gif…]()
